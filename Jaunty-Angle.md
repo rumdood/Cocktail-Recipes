@@ -7,6 +7,8 @@
 * 2 dashes Angostura Bitters
 * 1 dash Angostura Orange Bitters
 
-__Instructions:__ _Stir, strain, up, orange twist_
-
 __Glassware:__ Old Fashioned Glass
+
+__Garnish:__ Orange twist
+
+__Instructions:__ _Stir, strain, up, orange twist_

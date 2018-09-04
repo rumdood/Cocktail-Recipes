@@ -6,6 +6,8 @@
 * 0.25 oz Falernum
 * 1 dash Jerry Thomas Bitters
 
-__Directions:__ _Stir, strain, Orange Twist_
-
 __Glassware:__ Coupe
+
+__Garnish:__ Orange twist
+
+__Directions:__ _Stir, strain, Orange Twist_

@@ -7,6 +7,8 @@
 * 0.5 oz Lemon Juice
 * 0.25 oz Simple Syrup (2:1)
 
-__Instructions:__ _Shake, strain, lemon twist_
-
 __Glassware:__ Coupe
+
+__Garnish:__ Lemon twist
+
+__Instructions:__ _Shake, strain, lemon twist_

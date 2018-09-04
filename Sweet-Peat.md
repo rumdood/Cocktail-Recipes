@@ -8,6 +8,8 @@
 * 0.5 oz Lime Juice
 * 1 dash Angostura Bitters
 
-__Instructions:__ _Shake with crushed ice, dump. Garnish with a pineapple leaf._
-
 __Glassware:__ Snifter
+
+__Garnish:__ Pineapple leaf
+
+__Instructions:__ _Shake with crushed ice, dump. Garnish with a pineapple leaf._

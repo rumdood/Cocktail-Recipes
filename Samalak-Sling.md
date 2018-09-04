@@ -6,6 +6,8 @@
 * 0.5 oz Tamarind Syrup
 * 1 dash Angostura Bitters
 
-__Instructions:__ _Shake, strain, add ice, top with soda_
-
 __Glassware:__ Collins
+
+__Garnish:__ Lime wedge sprinkled with chile
+
+__Instructions:__ _Shake, strain, add ice, top with soda_

@@ -6,6 +6,8 @@
 * 1 tsp Maraschino
 * 0.5 oz Orgeat
 
-__Instructions:__ _Shake with ice, strain, crushed ice, orange twist with brandied cherry_
-
 __Glassware:__ Old Fashioned Glass
+
+__Garnish:__ Orange twist, Brandied Cherry flag
+
+__Instructions:__ _Shake with ice, strain, crushed ice, orange twist with brandied cherry_

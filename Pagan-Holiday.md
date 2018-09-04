@@ -7,6 +7,8 @@
 * 0.75 oz Lemon Juice
 * 0.5 oz Pineapple Juice
 
-__Instructions:__ _Frappe with crushed ice and dump into glass. Garnish with fresh basil_
-
 __Glassware:__ Old Fashioned Glass
+
+__Garnish:__ Fresh basil
+
+__Instructions:__ _Frappe with crushed ice and dump into glass. Garnish with fresh basil_

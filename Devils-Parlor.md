@@ -5,6 +5,8 @@
 * 0.75 oz Cocchi Americano
 * 1 tsp Demerara Syrup
 
-__Instructions:__ _Stir, strain, garnish with grapefruit twist._
-
 __Glassware:__ Coupe
+
+__Garnish:__ Grapefruit twist
+
+__Instructions:__ _Stir, strain, garnish with grapefruit twist._

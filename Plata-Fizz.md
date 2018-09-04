@@ -8,6 +8,8 @@
 * 0.5 oz Egg White
 * Cream Soda (to top)
 
-__Instructions:__ _Dry shake all but soda. Shake with ice. Strain into glass and top with cream soda. Garnish with orange zest._
-
 __Glassware:__ Fizz Glass
+
+__Garnish:__ Orange twist
+
+__Instructions:__ _Dry shake all but soda. Shake with ice. Strain into glass and top with cream soda. Garnish with orange zest._
