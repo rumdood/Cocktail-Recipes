@@ -1,8 +1,7 @@
 # Pagan Holiday
 
-* 1.5 oz El Dorado 12 Year Old
+* 1.5 oz Appleton Estate Reserve
 * 0.5 oz Stiggins Fancy Pineapple Rum
-* 0.25 oz Jamaican Potstill Rum
 * 1 oz Basil Honey Syrup
 * 0.75 oz Lemon Juice
 * 0.5 oz Pineapple Juice
