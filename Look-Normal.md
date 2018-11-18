@@ -4,7 +4,8 @@
 * 0.75 oz Lime Juice
 * 2 tsp Absinthe
 * 1 tsp Maraschino
-* 0.5 oz Orgeat
+* 1 oz Orgeat
+* 1 dash Orange Bitters
 
 __Glassware:__ Old Fashioned Glass
 
