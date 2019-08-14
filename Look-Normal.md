@@ -11,4 +11,4 @@ __Glassware:__ Old Fashioned Glass
 
 __Garnish:__ Orange twist, Brandied Cherry flag
 
-__Instructions:__ _Shake with ice, strain, crushed ice, orange twist with brandied cherry_
+__Instructions:__ _Shake with crushed ice, dump into glass, garnish with orange twist with brandied cherry_
