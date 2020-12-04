@@ -1,4 +1,4 @@
-# Samalak Sling
+# Sampalok Sling
 
 * 2 oz Wray & Nephew Overproof Rum
 * 1 oz Lime Juice
