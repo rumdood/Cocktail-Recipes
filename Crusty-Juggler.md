@@ -1,4 +1,4 @@
-# Throwing Snakes
+# Crusty Juggler
 
 * 1 oz Rhum Agricole Blanc
 * 0.5 oz Stiggins Fancy Pineapple Rum
