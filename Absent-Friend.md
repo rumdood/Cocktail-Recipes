@@ -5,7 +5,7 @@
 * 0.25 oz Creme de Cacao
 * 0.25 oz Ferrand Dry Curacao
 * 1 tsp Grenadine
-* 0.75 oz Champagne to top
+* 0.75 oz Rosé to top
 
 __Glassware:__ Coupe
 
